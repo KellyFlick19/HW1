@@ -1,2 +1,0 @@
-Kelly Flick
-Minnesota Twins
